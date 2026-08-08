@@ -6,4 +6,8 @@
 
 我的账号⬇️
 
-X/Threads：@0xliuyanxia（加密刘艳霞）
+X：@0xliuyanxia（加密刘艳霞）
+
+Threads：0xliuyanxia01（加密刘艳霞）
+
+建议关注X，Threads喜欢炸号，容易失联
